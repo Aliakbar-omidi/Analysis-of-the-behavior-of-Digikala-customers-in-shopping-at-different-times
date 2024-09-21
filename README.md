@@ -1,1 +1,0 @@
-# Analysis-of-the-behavior-of-Digikala-customers-in-shopping-at-different-times
